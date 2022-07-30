@@ -1,1 +1,0 @@
-papa v dele

@@ -1,4 +1,4 @@
-No code No pain\n
-experiment with amend\n
-BIG DRILL\n
+No code No pain
+experiment with amend
+BIG DRILL
 rank 1 all roles all servers
